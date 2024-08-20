@@ -6,5 +6,3 @@
   
 - 🕚 Currently, my area of research is structural geology.
 ##### 🛝 Fun Fact: Listening to Music-AfroBeats and Playing games at my leisure time.
-
--->
